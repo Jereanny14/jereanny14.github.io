@@ -157,7 +157,7 @@ Now we now how 1 or more peron can be a seriusly problem the diferents recomenda
      
 
 In this proyect i using the internet and others sites, all information is legal and it is whith educational endings.
-the tipe of analisis i use is a prescritip analisis i use pasta datad whit recentli datas tofound many solutions.
+the tipe of analisis i use is a prescritip analisis i use past datad whit recentli datas to found many solutions.
 this proyect is ended an publish.
                                                                              
                                                           #CREDITS
