@@ -104,6 +104,7 @@ qualified professional adviser. No entity in the Deloitte network shall be respo
 attachments.© 2023
 
 Example 2 🔊
+
 MINISTRY OF SCIENCE, INNOVATION, TECHNOLOGY AND TELECOMMUNICATIONS
 GOVERNMENT OF COSTA RICA
 
